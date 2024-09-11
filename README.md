@@ -12,4 +12,4 @@ Você pode entrar em contato comigo 📫
 
 @maarqueesss_01  
 
-![] (https://media.giphy.com/media/ce0KXTXlJD5a86X7xh/giphy.gif?cid=ecf05e477wwqowsc5h0mvddt4712gummumgpbp5idsi23kxc&ep=v1_gifs_search&rid=giphy.gif&ct=g)
+![](https://media.giphy.com/media/ce0KXTXlJD5a86X7xh/giphy.gif?cid=ecf05e477wwqowsc5h0mvddt4712gummumgpbp5idsi23kxc&ep=v1_gifs_search&rid=giphy.gif&ct=g)
